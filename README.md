@@ -1,3 +1,3 @@
-# T.T.613
+# Introducing... Lists!
 I'm so excited to introduce my 10th graders to the world of lists!
 Just a few basics to start them off.
